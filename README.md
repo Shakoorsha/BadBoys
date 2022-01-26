@@ -1,1 +1,1 @@
-# ishtta
+# insta shortcut
